@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @david-winkler-aig
+- 📫 How to reach me: david.winkler@wavestone.com
